@@ -1,1 +1,3 @@
-# pro-24-Veg-Momos
+# Veg-Momos
+
+The recipe for veg momos is extremely simple and easy to make, yet some tips and suggestions to make it better. firstly, in this recipe, i have used the plain flour sheets which have a sufficient amount of gluten making it ideal for this recipe. but this can be replaced with wheat flour to make it healthy and easily digestible. secondly, the vegetable stuffing is completely open-ended and you can mix and match with your choice. ensure to finely chop the vegetables when using it. lastly, you can extend the recipe by deep frying these steamed momos in hot oil. i personally like the deeply fried momos, as they are crispy and tastie.
